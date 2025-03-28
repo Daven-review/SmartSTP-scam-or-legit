@@ -5,7 +5,7 @@ In the fast-paced world of online trading, finding a reliable and trustworthy br
 After spending considerable time using SmartSTP for my own trading activities, I can confidently say that SmartSTP is a legitimate, secure, and reliable broker. From my experience, it stands out as a platform that offers robust trading conditions, transparent policies, and excellent customer support. In this article, I’ll share my experience with SmartSTP and explain why I consider it a trustworthy broker for both novice and experienced traders.
 
 
-![image]()
+![image](https://github.com/Daven-review/SmartSTP-scam-or-legit/blob/e0942bf261413c20b925470e304a4ea071577904/smartstp%20home%20screen.png)
 
 What is SmartSTP?
 --------------------
